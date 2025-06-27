@@ -1,0 +1,2 @@
+# Sntlogmine
+Xiaomi: xxxxxx  Batot: ee3df10f3m7c64d79087bc3d9b648e2639f7fb29ae0847e10c9a02e084a2433b
